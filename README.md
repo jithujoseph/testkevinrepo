@@ -1,1 +1,0 @@
-# kevinayinickal.github.io
